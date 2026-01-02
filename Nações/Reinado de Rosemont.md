@@ -1,0 +1,6 @@
+
+Forma de governo: Monarquia
+Gentílico: Sul Roseirante / Norte Roseirante
+
+
+Um reinado conhecido pelo seu exército forte e políticas de conquista de terras. Após a morte de seu antigo rei e rainha, [[Arthur Rosemont]] e [[Catarina Rosemont]], assumem o poder seus filhos gémeos, [[Vincente Rosemont]] e [[Gregório Rosemont]]. Porém os dois garotos, ainda muito jovens para governar, não conseguiam entrar em um consenso e acabaram dividindo o reinado em Rosemont do Norte (Vincente) e Rosemont do Sul (Gregório). Suas formas de governar eram muito parecidas, apenas em uma única coisa que discordavam drasticamente, as técnicas de combate de seu exército. Vincente acredita que arcanismo é a chave para um exército imbatível, enquanto Gregório defende que nada supera a força bruta com técnica e treinamento. Então decidiram transformar o reino de seu pai em um experimento de sua aposta. Sendo assim, os dois reinos, agora divididos, estão em constante guerra para provar o ponto de seus reis mesquinhos. Ao norte, são contratados ao exército os mais poderosos magos, feiticeiros e bardos, enquanto ao sul, bárbaros, guerreiros e monges. Usar armas no norte ou magia no sul não é crime, mas é altamente rechaçado pelas propagandas locais e motivo de exclusão social.

@@ -1,0 +1,3 @@
+Toda vez que o jogador fizer uma ação de blefe ou intimidação, o NPC faz o Saving Throw, ao invés do jogador fazer a rolagem. 
+A DC é calculada: 8 + a perícia usada (enganação, intimidação, etc) e o NPC rola com Intelecto.
+Caso o contexto da ação seja muito bem feita ou favorável (à escolha do mestre) o NPC rola com desvantagem.Essa regra não se aplica a ações de encorajamento, inspirações ou ações favoráveis ao NPC.

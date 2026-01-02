@@ -1,0 +1,6 @@
+
+Forma de governo: Oligarquia
+Gentílico: Bradoliano(a)
+
+
+Um reino conhecido pelo seu comércio, tudo que é comprado, é vendido pelas empresas de Brada. Em sua capital, uma cidade de status social alto, é um ótimo lugar para se morar. Porém nas regiões, somente pobreza e miséria. Na Brada Alta (parte rica), é onde ficam as empresas dos 5 líderes da nação, junto com a bolsa de valores de Alteran e as belas mansões das famílias aristocratas. Na Brada Baixa (parte pobre), ficam as fábricas que produzem os produtos a serem vendidos, por salários míseros, além de mineradoras e portos de pesca. Devido a grande diferença social, a polícia age com violência para impedir greves ou golpes contra Brada Alta, porém só. A polícia não intervém em outros assuntos entre os moradores, o que torna Brada Baixa um local extremamente perigoso e hostil, roubos e assassinatos acontecem de forma deliberada, mesmo com a existência de grupos de vigilância e regras tácitas de locais e estabelecimentos que não devem ser tocados.

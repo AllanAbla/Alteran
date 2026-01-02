@@ -1,0 +1,4 @@
+Forma de governo: Democracia
+Gentílico: Cramoriano(a)  
+  
+O reino marcado pelo seu investimento na tecnologia e na educação. As cidades são marcadas pelos veículos movidos à eletricidade, as grandes televisões com propagandas e aviões a vapor. Por se tratar de uma democracia, existem um presidente vigente e um congresso, e logo, um ano de eleição, que ocorre a cada 4 anos. Também vale ressaltar o prestígio das enormes faculdades e colégios de Cramori, que aparentam ser mansões pelo seu tamanho. Anualmente existe uma premiação de melhores avanços em tecnologia, literatura, arcanismo e sociologia, como forma de incentivar novas mentes brilhantes.
